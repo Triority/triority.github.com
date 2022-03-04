@@ -2,7 +2,7 @@
 
 ### My Profile:
 - A big, big, big pigeon.
-- Canot do anything but sleep.
+- Cannot do anything but sleep.
 #### That's it all.
 
 ### Contact me:
