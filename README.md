@@ -2,7 +2,7 @@
 
 ### My Profile:
 - A big, big, big pigeon.
-- Can only eat, drink and sleep.
+- Canot do anything but sleep.
 #### That's it all.
 
 ### Contact me:
